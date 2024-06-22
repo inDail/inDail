@@ -1,0 +1,5 @@
+- 👋 Hi, I’m in_Dail
+- 👀 I’m interested in roblox coding
+- 🌱 I’m currently learning Lua
+- 📫 How to reach me: Telegram: @ln_Dail  &  Discord: in_dail
+- ⚡ Fun fact: Im russian😱😱💥💥💥😲😲🤯🤯🤯🤯🤯
